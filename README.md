@@ -11,7 +11,7 @@ Research by former 911 call-taker **Jessica Gillooly**, now a 911 subject matter
 
 
 
-This analysis supports a story to be published at [MindSite News](https://mindsitenews.org/).
+This analysis supports a story published in September 2023 at [MindSite News](https://mindsitenews.org/2023/09/11/911-call-takers-are-demoralized-overwhelmed-and-dealing-with-their-own-mental-health-woes/), [The Current](https://thecurrentga.org/2023/09/20/911-call-takers-are-demoralized-overwhelmed-and-dealing-with-their-own-mental-health-woes/), and [The Concord Monitor](https://articles.concordmonitor.com/911-Call-Takers-Are-Demoralized-Overwhelmed-and-Dealing-With-Their-Own-Mental-Health-Woes-52341576).
 
 
 ## Key Findings
